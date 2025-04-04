@@ -17,3 +17,9 @@ But for the same reason 1 of the 3 is not recorded.
 
 The summary is, I practiced typing for 16 minutes, and monkeytype recorded only 4 minutes.
 Today my speed is [I don't know. I don't even want to know]
+
+## 4 - Friday
+It's 10:58 at the morning. I did 5 practice sessions each of 2 minutes adding up to a complete 10 minute period.
+Today my mind is somewhat stablem It is possible that I might type for hours today.
+If I do, I will write here.
+Record was negative today. Monkeytype says that If I stay consistant on this pattern, My hourly word per  minute will decrease by 22.
