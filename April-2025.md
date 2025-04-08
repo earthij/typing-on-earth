@@ -26,3 +26,6 @@ Record was negative today. Monkeytype says that If I stay consistant on this pat
 
 ## 6 - Sunday
 Today I have reset my account on monkeytype.com
+
+## 8 - Tuesday
+30 seconds it is.
